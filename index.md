@@ -1,5 +1,5 @@
 ## 江南
-杨志，笔名江南。中国作家、小说家、内地幻想文学家，《九州志》主编，媒体公司总经理。1977年7月13日生于安徽舒城，就读北京大学，留学于美国名校Washington University in St Louis，师从质谱科学代表人物Michael L. Gross，凭借回忆北大生活的小说《此间的少年》踏入文坛。
+杨志，笔名江南。中国作家、小说家、内地幻想文学家，《九州志》主编，媒体公司总经理。1977年7月13日生于安徽舒城，就读北京大学，留学于美国名校Washington University in St Louishttps://baike.baidu.com/item/%E5%9C%A3%E8%B7%AF%E6%98%93%E6%96%AF%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%A4%A7%E5%AD%A6/4164281?fr=aladdin&fromid=12017579&fromtitle=washington+university+in+st+louis，师从质谱科学代表人物Michael L. Gross，凭借回忆北大生活的小说《此间的少年》踏入文坛。
 ![91ef76c6a7efce1b591c4243a551f3deb48f6500.jpg](91ef76c6a7efce1b591c4243a551f3deb48f6500.jpg)
 
 
